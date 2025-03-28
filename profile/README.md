@@ -4,6 +4,12 @@
 
 👉👉 Click to play [Sprunki Phase 8 New Definitive](https://sprunkly.org/game/sprunki-phase-8-new-version)
 
+👉👉 Click to play [Sprunki Phase 5 New Definitive](https://sprunkly.org/game/sprunki-phase-6-new-version)
+
+👉👉 Click to play [Sprunki Phase 6 New Definitive](https://sprunkly.org/game/sprunki-phase-6-new-version)
+
+👉👉 Click to play [Sprunki Phase 7 New Definitive](https://sprunkly.org/game/sprunki-phase-7-definitive-new-version)
+
 This latest version showcases a captivating array of spooky characters, each contributing unique sounds and striking visuals. Players can craft original music tracks filled with ominous beats and unsettling melodies, creating an immersive and haunting atmosphere.
 
 ## How to Play
